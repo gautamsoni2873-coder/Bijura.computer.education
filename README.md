@@ -1,1 +1,0 @@
-# Bijura.computer.education
